@@ -1,2 +1,2 @@
-- 👋 Hi, I’m TioPlato
-a lovely person XD
+😉Hi, I’m TioPlato
+a fantastic person XD
